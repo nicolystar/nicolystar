@@ -1,16 +1,19 @@
-## Hi there 👋
+###
 
-<!--
-**nicolystar/nicolystar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+### Você pode entrar em contrato
+
+00001201311755sp@al.educacao.sp.gov.br
+
+
+
+
+![](https://classic.exame.com/wp-content/uploads/2024/05/GokuDay.jpg?quality=70&strip=info&w=1024)
